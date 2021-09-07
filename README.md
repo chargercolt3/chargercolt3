@@ -1,0 +1,4 @@
+- Hi, I’m @chargercolt3
+- 👀 I’m interested in Drums, Anime, Music, Art
+- 🌱 I’m currently learning coding. Beginner any help appreciated. 
+- 💞️ I’m looking to get some coding help. 
